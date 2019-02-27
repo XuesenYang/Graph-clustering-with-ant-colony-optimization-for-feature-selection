@@ -10,4 +10,4 @@ Editor:Xuesen Yang
 Institution: Shenzhen University             
 E-mail:1348825332@qq.com            
 Edit date:2019-2-27   
-Love someone secretly  is a painful thing
+Secret love is a painful thing~
